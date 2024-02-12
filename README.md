@@ -7,8 +7,9 @@
 - ⚡ Fun fact: I use tabs over spaces  
   
 
-- How to reach me **otsanllc@gmail.com**  
-  
+- How to reach me **otsanllc@gmail.com**
+- A lot of past projects and feedback from clients on my <a href="https://www.upwork.com/freelancers/relvin?s=1110580755057594368" target="_blank"
+ >Upwork profile</a> 
 
 <br/>  
 
